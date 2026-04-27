@@ -31,4 +31,4 @@ Data visualisation · Risk reporting · Audit documentation
 Currently a Finance Administrator at SAMRC with hands-on experience in
 ERP data validation, financial reconciliation, and audit support.
 Actively pursuing a transition into GRC, IT Audit, or Finance Analyst roles.
-  Connect via [Email] (nishacolleenzana)
+  Connect via [Email] (nishacolleenzana@gmail.com)
